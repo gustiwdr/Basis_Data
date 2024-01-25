@@ -1,3 +1,0 @@
-# BASIS DATA 
-
-## PERTEMUAN 6 dan 7
